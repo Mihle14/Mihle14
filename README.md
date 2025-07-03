@@ -1,4 +1,4 @@
-# 💫 Hey There, It's Mihle!!💫
+# 💫 Hey, It's Mihle!!💫
 🚀 I'm a passionate and aspiring software developer.<br>🎯 Always eager to collaborate on exciting projects and learn new technologies.<br>📚 Passionate about continuous learning and professional development.<br>🎨 Fun Fact: I love venturing into creative arts when I'm not coding, whether it's painting, drama, dancing, drawing, or exploring new artistic mediums. <br>🎨 Creativity fuels both my technical and artistic endeavors!
 
 
